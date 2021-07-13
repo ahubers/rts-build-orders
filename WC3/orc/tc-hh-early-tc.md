@@ -1,0 +1,11 @@
+### TC Mass Zerkers
+- 6/10 - 4 peon to gold, 1 to altar
+- 7/10 - new peon to burrow
+- 8/10 - new peon to gold (total 5 in gold)
+- 9/10 - new peon to wood (pause making peons)
+- 9/10 - peon returns wood, he makes warmill
+- 9/10 - New peon -- make barracks & start TC
+- 14/20 - create one peon - TC scouts w/ Aura
+- 16/20 - Burrow
+- make a HH as soon as you can
+- 19/20 - make a shop as soon as you can

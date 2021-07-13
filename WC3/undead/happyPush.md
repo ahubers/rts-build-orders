@@ -1,0 +1,30 @@
+## BO
+
+- 6/10  Acolyte
+- 6/10  Altar
+- 6/10  Ziggurat
+- 7/10  Crypt
+- 8/10  Aco (scout)
+- 8/10  Tomb of Relics
+- 13/20 DK
+- 13/20 graveyard
+- 15/20 Ghoul
+- 17/20 ghoul
+- 17/20 Tier 2
+- 17/20 Ziggurat
+- 20/20 Crypt fiend
+- 23/30 Crypt Fiend 
+- 26/30 Crypt fiend
+- 25/30 Tier 3 -> Slaughterhouse
+- 30/30 Lich
+- 30/30 Ziggurat
+- 33/40 Crypt Fiend (4)
+- 36/40 statue (10
+- 36/40 Ziggurat
+- 39/40 Statue (2)
+- 39/40 Destroyer upgrade
+- 44/50 Dark Ranger
+- 45/50 Aco (expansion)
+- 45/50 Temple of damned
+- 47/50 destroyer
+- 47/50 expand
